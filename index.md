@@ -42,4 +42,4 @@ Sie können jederzeit:
 
 ## 7. Kontakt
 
-Bei Fragen zur Datenschutzerklärung kontaktieren Sie uns unter: [Deine E-Mail]
+Bei Fragen zur Datenschutzerklärung kontaktieren Sie uns unter: g@scherer.eu
